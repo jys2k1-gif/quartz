@@ -1,7 +1,7 @@
 영국은 영국이다 설정집 위키
 
 반갑습니다. 소설 설정집입니다.
-feinggmeeggeggfgggggdefeef333gegeeeeeee
+feinggmeeggeggfgggggdefeef333gegeeeeeeefe
 
 * [[잉글랜드]]
 * [[스코틀랜드]].
